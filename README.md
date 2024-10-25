@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/mohitratan18](https://github.com/mohitratan18)
 
-- 💬 Ask me about **React , Nodejs , Js , C++**
+- 💬 Ask me about **React, NextJs , React-Native , Nodejs , Js , C++**
 
 - 📫 How to reach me **mohitratan2003@gmail.com**
 
