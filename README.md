@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mohitratan2003@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/168iHi9PZ7dHddQhI7hEvQVZgfFSLzWE3/view?usp=sharing](https://drive.google.com/file/d/168iHi9PZ7dHddQhI7hEvQVZgfFSLzWE3/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1zM3HOIpYvgNf3xR6rrhsHWj0Hsv5rY6e/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
